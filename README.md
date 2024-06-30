@@ -1,2 +1,2 @@
 **hello**
-my anme kitgame and i use these sounds for pac3
+my anme kitgame and i use these things (originally just sounds) for pac3
